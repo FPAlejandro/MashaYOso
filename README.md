@@ -2,7 +2,7 @@
 
 **Masha y Oso**
 
-<sub>Si de historias </sub> *macabras* <sub>quieres ver, las historias espeluznantes de Masha es la mejor opción, son
+<sub>Si de historias </sub> *macabras* <sub>  `#ffffff` quieres ver`#0d1117`, las historias espeluznantes de Masha es la mejor opción, son
 muy buenos porque espantan</sub> 🧸😨
 
 
