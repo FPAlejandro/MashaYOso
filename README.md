@@ -8,4 +8,4 @@ muy buenos porque espantan</sub> 🧸😨
 
 [Para saber más de Masha] (https://g.co/kgs/FQ9CjY)
 
-![Imagen relacionada] (https://www.laguiago.com/wp-content/uploads/2021/08/Masha-y-el-Oso.jpg)
+![Imagen relacionada] (https://play-lh.googleusercontent.com/iFgLJ7Y0osvp1vghZRi2ySq0EPesTkMixFNeV9WbLSN6zLESfussoD9gJCx4HULiXw)
